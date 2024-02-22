@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Shark-87
+- 🌱 I’m currently learning:Node.js
+- 📫 How to reach me: no need
+- ⚡ Fun fact: my name is alireza but i like ahoora more
