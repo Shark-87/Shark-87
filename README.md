@@ -1,6 +1,6 @@
 # 💫 About Me:
 to be honest,the changing point for me that made me intrested in programing was when i met mr kardan,the best teacher that i have ever had, i met him at my univercity and i had 2 classes with him and after that he made turing,and the members were us,a couple of future programmers and dreamers, <br>anyways,<br>let me tell you about shark-87,not me! literally shark-87,when i was a kid i  had a loving mother and a loving father,but they kind of didnt see me as a human,like every other asian parent they wanted their kid to be amazing and stuff and i think i was(am) smart enough to do that but it was not what i wanted,i saw other kids having better things,doing what they wanted and to be honest,it was not even a problem for my father to provide and do things for me but all he did was raising me on conditions,like do this and i will give you this or if you achive this i do this for you and the things that he wanted from me were hard for me so instead i got depressed and grew into me,a perfectionist with jealousy,<br>well i gave an intro to it and i dont want to talk about the rest of it(its not necessarily) but after being like that for a while and recovering from that(im not like that anymore)i felt like i should have sth to remember from those times so, i decided to have my nickname after sth that is emotionless and cruel
-(btw i dont hate my dad for that i could have a spoiled charecter)
+(btw i dont hate my dad for that ,i could have a spoiled charecter)
 
 
 ## 🌐 Socials:
